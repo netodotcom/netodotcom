@@ -1,4 +1,4 @@
-## Neto!
+## João Luiz Neto;
 
-🌍 Belo Horizonte, Brasil  
-🚀 **Projects:** Always creating something new!
+🌍 Belo Horizonte, Brasil;
+Always creating something new with tech;
